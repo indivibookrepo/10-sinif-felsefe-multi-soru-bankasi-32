@@ -1,0 +1,1 @@
+# 10-sinif-felsefe-multi-soru-bankasi-32
